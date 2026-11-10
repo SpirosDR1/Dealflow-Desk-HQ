@@ -14,7 +14,7 @@ Dealflow Desk is run by Spyridon Gagrinas, based in Greece. I have followed cryp
 
 Want to see if it fits your project?
 
-Visit our Website: http://sgetdealflowdesk.com/
+Visit our Website: http://getdealflowdesk.com
 
 Write to me at spirosgagr@getdealflowdesk.com. I read every email.
 
